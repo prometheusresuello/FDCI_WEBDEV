@@ -1,0 +1,1 @@
+<img src="https://media.istockphoto.com/photos/wooden-chess-board-picture-id476469645" alt="">
